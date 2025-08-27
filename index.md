@@ -8,5 +8,3 @@
 
 \- \*\*Hobbies\*\*: Rowing, Reading, and Role-playing
 
-
-
